@@ -1,5 +1,5 @@
 # Nachod_22
-# 👋 Hi, I'm [Твой Ник]
+# 👋 Hi, I'm [Nahod_22]
 
 🚀 Web3 & Crypto enthusiast  
 💻 Exploring blockchain, DeFi and NFT projects  
